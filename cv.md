@@ -12,12 +12,6 @@
 
 ### <span>Manager</span> <span>Oct 2012 -- Dec 2021</span>
 
-Text
-
- - 1
- - 2
- - 3
-
 
 ## Education
 
