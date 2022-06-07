@@ -1,1 +1,1 @@
-# rsschool-cv
+https://tairus73.github.io/rsschool-cv/
